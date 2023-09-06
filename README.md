@@ -1,1 +1,1 @@
-# lisya nft profile
+# lisya nft profiles
